@@ -1,2 +1,2 @@
 # Mekrix
-cool decorative stuff
+welcome to mekrix we sell cool stuff :D
